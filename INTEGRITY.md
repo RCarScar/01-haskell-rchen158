@@ -1,0 +1,1 @@
+Went on a bunch of websites to search up syntax nothing copied
